@@ -9,7 +9,7 @@ Juarez Aguilar Juan
 
 Roque Espindola Guillermo
 
-Hernandez Valdez elias Bergabe
+
 
 julio alberto contreras
 
